@@ -1,4 +1,5 @@
 # Recordings List
+### 10.11.2021: https://us02web.zoom.us/rec/share/W3Vr4ZFMIPTA5Lu_3Q8qxJvzziJUWoK1Vu9PR5vt8NO6OSa_7h3DNnkFCEt_ySPj.ZDW3ZoyyAv2oaj5c
 
 ### 09.11.2021: https://us02web.zoom.us/rec/share/KASoJutG8mOKItnz59sgkq9GAxcrXy65gnD1PgktmbXUuOtQrnGtbjYakdCChzXx.kFhsYG9mfMTsGKav
 
