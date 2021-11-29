@@ -1,5 +1,13 @@
 # Recordings List
 
+### 25.11.2021: https://us02web.zoom.us/rec/share/Jc0nN6Aaa3KZ5nLd_83OhZbeGzGUiVzSsHEsQfgE2RjdISlwrMsGQp3EM7r4HhZA.VlVyM1xcBL_tUOfB
+
+### 23.11.2021: https://us02web.zoom.us/rec/share/RxSDwXgNpNtl0vWO5qIzgs8zdXsavlrKyT88TiBEhhrsxu6uFhC7cK7TQtRPNP_Z.WdBI2IEJ09Uibh1a
+
+### 22.11.2021: https://us02web.zoom.us/rec/share/E7NEaxeQG7IlCbOS_qpUjJ5Qg981AQ0XdzHnmIdVW2KC8PgdEHsg9bl2sA4regB-.qujIb-Vxr0w0JVVm
+
+### 18.11.2021: https://us02web.zoom.us/rec/share/4Ak2g8aIWoYccZoTohsZk0uGezGFpe3U1yPz8nxiN6_ZPVdbr9zhdMxOJDvZ00yf.yh2rXnCum8mAPejH
+
 ### 15.11.2021: https://us02web.zoom.us/rec/share/MD3nRW3SCzy7JGP_5GoUS8QKogMXe3Vzp_kd8iMyhXRuBdKduegBwqpVZcam9E9F.WzCnzOVRgoNBQU6u
 
 ### 11.11.2021: https://us02web.zoom.us/rec/share/AOcf7TmlXFOzj085wLxVIVjWrt7sKqmLWC55QsHgiqtweeP6MV5BS6bu9g3Zl9F3.Op4WP0Do9kesozDs
