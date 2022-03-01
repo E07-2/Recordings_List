@@ -1,5 +1,9 @@
 # Recordings List
 
+### 24.02.2022: https://us02web.zoom.us/rec/share/ktZADVCU3bVZ-rEYSpbd7oxNKVbMsSMW1zTjqIWoCa2ZQa_FLMS-ASuigt604Ag7.bZUelYSHYU9wq6ot
+
+### 23.02.2022: https://us02web.zoom.us/rec/share/I5tb9A_D_yik3f9Kdi6aXUPhhzn5poODKBPSEF_rh2LSvc8PwihxDW4gOlfgJy4B.K58ZZsX-VvNJ3yb7
+
 ### 22.02.2022: https://us02web.zoom.us/rec/share/QjbQ_lv_8jSWWIxR6T3SQDMMLvdkw_LoJN-alE1xhVAOVIbgVzT9OToh_S4VSnXQ.59Q0FXNUbpcr0XGw
 
 ### 21.02.2022: https://us02web.zoom.us/rec/share/zmqmWly9shwm1mDd6o3fIoxRDbRoomDFefsUPAI8jmrKcRfrD5pTRUqAR3BF7_Xw.AUiwwDFDzx-DB-Hb
