@@ -1,6 +1,6 @@
 # Recordings List
 
-### 23.03.2022: https://drive.google.com/file/d/1Gah9VGa6E-3qgg-Iuq5lG-Uu8stMS1n6/view?usp=sharing
+### 24.03.2022: https://drive.google.com/file/d/1Gah9VGa6E-3qgg-Iuq5lG-Uu8stMS1n6/view?usp=sharing
 
 ### 23.03.2022: https://drive.google.com/file/d/1NM1xjdWq858jTsrTIRPq7307mqErHSgs/view?usp=sharing
 
